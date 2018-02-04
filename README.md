@@ -1,1 +1,1 @@
-fist shot
+first shot
